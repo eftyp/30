@@ -1,6 +1,6 @@
 ---
 layout: blog
-title: 09
+title: Arti mimpi dipukul memukul
 permalink: /09/
 ---
 Arti dasar dan psikologi mimpi dipukul
